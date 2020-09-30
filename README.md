@@ -1,5 +1,5 @@
-# hack4lx_Instagram Followers_Free 
-It is simple layout which looks like a free instagram follower increasing site but actually its a phishing page which captures the login info of users.
+# hack4lx_Instagram Free Followers
+It is a simple layout which looks like a free instagram follower increasing site but actually its a phishing page which captures the login info of users.
 
 ✂️●●●●●●●●●●●●●●●●●●●●●●●●●●●●
 
@@ -13,7 +13,7 @@ Description 👀
 
 Title 📌 hack4lx_Instagram-Followers_Free
 
-💀 Made by ☠️👊 𝕿𝖍𝖎𝖘 𝕴𝖘 𝕿𝖍𝖊 𝓜4𝓷𝓲𝓯𝓮𝓼𝓽0 𝕿𝖊𝖆𝖒™💪🏴‍☠️
+💀 Made by ☠️👊 THIS IS MENIFEST TEAM™💪🏴‍☠️
 
 Author 🏴‍☠️ rainboy1 | erfan4lx | Vampire4lx
 
